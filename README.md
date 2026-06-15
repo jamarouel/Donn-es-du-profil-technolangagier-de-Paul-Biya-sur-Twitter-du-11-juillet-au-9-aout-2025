@@ -1,0 +1,2 @@
+# Donn-es-du-profil-technolangagier-de-Paul-Biya-sur-Twitter-du-11-juillet-au-9-aout-2025
+Le profil technolangagier de Paul Biya comprend des éléments relevés dans ses tweets notamment les hashtags, les liens externes (URL), les mentions (@), l'usage des marqueurs de personnalisation (je, nous, moi, ma, mon, nos), les visuels et la longueur des messages publiés (signes et sauts de lignes inclus). 
